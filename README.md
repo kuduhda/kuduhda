@@ -1,4 +1,4 @@
 -:snowflake::snowflake::snowflake::snowflake::snowflake::snowflake:<br/>
--:sweat_drops:nicolash:sweat_drops:
--:green_heart::green_heart::green_heart::blue_heart::blue_heart::blue_heart:
+-:sweat_drops:nicolash:sweat_drops:<br/>
+-:green_heart::green_heart::green_heart::blue_heart::blue_heart::blue_heart:<br/>
 -better and better:four_leaf_clover::four_leaf_clover::four_leaf_clover:
